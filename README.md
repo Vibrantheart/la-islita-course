@@ -1,0 +1,2 @@
+# la-islita-course
+*
